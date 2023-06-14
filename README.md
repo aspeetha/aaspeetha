@@ -1,5 +1,4 @@
-![Screenshot 2023-06-14 at 4 14 53 PM Background Removed](https://github.com/aspeetha/aspeetha.github.io/assets/136578913/c55d3217-5570-4ded-ae63-2104a9dc3075)
-
+![logo](https://github.com/aspeetha/aspeetha.github.io/assets/136578913/2b748973-44f6-4a83-b0c1-8b91455b5ed1)
 # ಶ್ರೀಕ್ಷೇತ್ರ ಅಮ್ಮಾ ಶಕ್ತಿಪೀಠ 
 ಕಂಬಳಿಪುರ ಕೆಂಪಾಪುರ ಗ್ರಾಮ, ಸೂಲಿಬೆಲೆ ಹೋಬಳಿ, ಹೊಸಕೋಟೆ ತಾಲ್ಲೂಕು.
 
